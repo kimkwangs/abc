@@ -1,1 +1,7 @@
-1Â÷ ±ê Å×½ºÆ®
+1ì°¨ ê¹ƒí—ˆë¸Œ
+
+cat
+women
+computer
+minjun
+sdfjksdf
